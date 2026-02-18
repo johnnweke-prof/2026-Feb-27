@@ -1,7 +1,7 @@
----
+<!-- ---
 layout: default
 title: Home
----
+--- -->
 
 # The Throne of Grace
 
