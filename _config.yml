@@ -7,4 +7,6 @@ markdown: kramdown
 plugins:
   - jekyll-remote-theme
 
-remote_theme: johnotander/pixyll
+remote_theme: johno/pixyll
+# Pixyll simple content‑focused Jekyll theme
+
