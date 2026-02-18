@@ -1,11 +1,6 @@
 title: The Throne of Grace
 description: Bible Study Plan - Friday Feb 27, 2026
-
+theme: jekyll-theme-cayman
 markdown: kramdown
 
-plugins:
-  - jekyll-remote-theme
-
-remote_theme: johno/pixyll@v1.0.0
-# Popular, flexible theme suitable for portfolios, documentation, and study sites
 
