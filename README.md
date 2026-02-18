@@ -1,7 +1,8 @@
+
 # The Throne of Grace
 
-###### Bible Study Plan - Friday Feb 27, 2026
-###### Created by: John Nweke
+#### Bible Study Plan - Friday Feb 27, 2026
+
 
 
 
@@ -79,5 +80,10 @@ d. **Telling others about The Lord Jesus Christ** (Matthew 28: 18-20 || Mark 16:
 
 
 > In Conclusion - Come to the Lord for everything. Find grace to help for your life, your job, your thoughts, your habits, your family/significant other, your future plans, for everything. Obtain mercy. And Live for Jesus. Let your body and your lifestyle reflect the Temple of God that you are. 
+
+---
+
+#### Created by: John Nweke 
+#### For: The Victory Collective
 
 
