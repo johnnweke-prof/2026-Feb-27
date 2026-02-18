@@ -6,6 +6,6 @@ markdown: kramdown
 plugins:
   - jekyll-remote-theme
 
-remote_theme: mmistakes/minimal-mistakes@4.24.0
+remote_theme: johno/pixyll@v1.0.0
 # Popular, flexible theme suitable for portfolios, documentation, and study sites
 
