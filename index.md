@@ -1,7 +1,7 @@
-<!-- ---
-layout: default
-title: Home
---- -->
+---
+# layout: default
+title: The Throne of Grace
+---
 
 # The Throne of Grace
 
