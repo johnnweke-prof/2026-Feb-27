@@ -1,6 +1,7 @@
 # The Throne of Grace
 
 ###### Bible Study Plan - Friday Feb 27, 2026
+###### Created by: John Nweke
 
 
 
