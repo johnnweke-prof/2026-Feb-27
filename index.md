@@ -3,7 +3,8 @@ title: Outline
 ---
 [Bible Study Outline](./)    |     [Agenda](./agenda)
 
-
+# The Throne of Grace
+---
 ### Intro
 **Kick Off with Icebreaker** for your BreakOut Session
  - something lite and fun to get them engaged (5 mins)
