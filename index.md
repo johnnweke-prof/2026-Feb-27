@@ -1,9 +1,8 @@
 ---
 title: The Throne of Grace
 ---
----
-[Home](./)    |     [Agenda](./agenda)
----
+[Bible Study Outline](./)    |     [Agenda](./agenda)
+
 
 **Kick Off with Icebreaker for your BreakOut Session**
  - something lite and fun to get them engaged (5 mins)
@@ -124,11 +123,11 @@ Its a trap designed to keep people in bondage, don't fall for the scam.
 
 Run to God, with all the dirt. Let him clean you up. And don't stay there - Live for Jesus! 
 
-
 ---
 
-[Home](./)    |     [Agenda](./agenda)
----
+
+[Bible Study Outline](./)    |     [Agenda](./agenda)
+
 
 
 #### Created by: John Nweke 

@@ -1,8 +1,7 @@
 ---
 title: Agenda 
 ---
-
-[Home](./)    |    |  [Agenda](./agenda)
+[Bible Study Outline](./)    |     [Agenda](./agenda)
 
 # Agenda
 
@@ -41,7 +40,8 @@ title: Agenda
 ---
 
 
-[Home](./)    |     [Agenda](./agenda)
+[Bible Study Outline](./)    |     [Agenda](./agenda)
+
 ---
 
 
