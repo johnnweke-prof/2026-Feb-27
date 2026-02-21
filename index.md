@@ -8,6 +8,7 @@ title: The Throne of Grace
 
 
 
+[Home](./)  |  [Scriptures](./scriptures)  |  [Agenda](./agenda)
 
 
 ---
@@ -28,7 +29,7 @@ What does he say about obtaining grace?
 
 When you become a child of God, by accepting Jesus as your Savior and LORD, you can come to his throne. He wants you to function as a King in his realm. (Rev 1: 6)
 
-You are sons and daughters, Heirs of God, and Joint Heirs with Christ (Romans 8:11-17)
+You are sons and daughters, Heirs of God, and Joint Heirs with Christ (Romans 8:14-17)
 
 >You are not a beggar begging God to have mercy on you. Mercy has been made available. You are a child of God coming to collect what God has freely made available for you, as a result of the death and resurrection of the Lord Jesus Christ.
 
@@ -74,7 +75,7 @@ What does that mean?
 
 You offer worship to God today with: 
 
-a. **Your words** - singing praise and talking about God's greatness. (Ephesians 5: 18-22 || Psalms 150 || Psalms 130)
+a. **Your words** - singing praise and talking about God's greatness. (Ephesians 5: 18-21 || Psalms 150:1)
 b. **Your life and how you live it** (Hebrews 12: 1-3)
 
 c. **The fruits of your labor** (Malachi 3: 8-10 || Proverbs 4: 8-10 || Philippians 4: 14-18)
