@@ -1,5 +1,5 @@
 ---
-title: The Throne of Grace
+title: Outline
 ---
 [Bible Study Outline](./)    |     [Agenda](./agenda)
 
