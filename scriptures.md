@@ -8,21 +8,9 @@ title: Scriptures
 
 
 
-[Home](./)  |  [Scriptures](./scriptures)  |  [Agenda](./agenda)
+[Home](./)  |  [Agenda](./agenda)
 
----
-
-Absolutely. Below are the **scripture references and full passages used in your study**, printed in **KJV by default**.
-
-For **Hebrews 4:11–16**, since you requested multiple translations (KJV, TPT, AMPC), I have included all three.
-
----
-
-# 📖 The Throne of Grace – Full Scriptures
-
----
-
-## 🟦 What Is the Throne of Grace?
+# The Throne of Grace Study –  Scriptures
 
 ### Hebrews 4:12-16
 
@@ -132,90 +120,3 @@ Now ye are clean through the word which I have spoken unto you.
 All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness:
 
 ---
-
-##  Worship Through Words (Singing)
-
-### Ephesians 5:18–21 (KJV)
-
-18 And be not drunk with wine, wherein is excess; but be filled with the Spirit;
-19 Speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord;
-20 Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ;
-21 Submitting yourselves one to another in the fear of God.
-
-
----
-
-### Psalm 150: 1 (KJV)
-
-Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
-(Psalm continues with exhortation to praise Him with instruments and everything that hath breath.)
-
----
-
-
----
-
-##  Worship Through Lifestyle
-
-### Romans 12:1–2 (AMPC)
-
-12 I appeal to you therefore, brethren, and beg of you in view of [all] the mercies of God, to make a decisive dedication of your bodies [presenting all your members and faculties] as a living sacrifice, holy (devoted, consecrated) and well pleasing to God, which is your reasonable (rational, intelligent) service and spiritual worship.
-
-2 Do not be conformed to this world (this age), [fashioned after and adapted to its external, superficial customs], but be transformed (changed) by the [entire] renewal of your mind [by its new ideals and its new attitude], so that you may prove [for yourselves] what is the good and acceptable and perfect will of God, even the thing which is good and acceptable and perfect [in His sight for you].
-
-### Hebrews 12:1–2 (KJV)
-
-12 Wherefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us,
-
-2 Looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.
-
----
-
-## Worship Through Giving
-
-### Malachi 3:8–10 (KJV)
-
-10 Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.
-
-11 And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts.
-
-12 And all nations shall call you blessed: for ye shall be a delightsome land, saith the Lord of hosts.
-
----
-
-### Proverbs 3:9–10 (KJV)
-
-9 Honour the Lord with thy substance, and with the firstfruits of all thine increase:
-
-10 So shall thy barns be filled with plenty, and thy presses shall burst out with new wine.
-
----
-
-### Philippians 4:14–18 (KJV)
-
-14 Notwithstanding ye have well done, that ye did communicate with my affliction.
-
-15 Now ye Philippians know also, that in the beginning of the gospel, when I departed from Macedonia, no church communicated with me as concerning giving and receiving, but ye only.
-
-16 For even in Thessalonica ye sent once and again unto my necessity.
-
-17 Not because I desire a gift: but I desire fruit that may abound to your account.
-
-18 But I have all, and abound: I am full, having received of Epaphroditus the things which were sent from you, an odour of a sweet smell, a sacrifice acceptable, wellpleasing to God.
-
----
-
-## Evangelism
-
-### Matthew 28:18–20 (KJV)
-
-Go ye therefore, and teach all nations, baptizing them...
-
----
-
-### Mark 16:15–18 (KJV)
-
-Go ye into all the world, and preach the gospel to every creature...
-
----
-

@@ -1,93 +1,137 @@
 ---
 title: The Throne of Grace
 ---
+---
+[Home](./)    |     [Agenda](./agenda)
+---
 
-# The Throne of Grace
+**Kick Off with Icebreaker for your BreakOut Session**
+ - something lite and fun to get them engaged (5 mins)
+ - Examples - 2 truths and a fib, and we have to guess the fib
+ - Or just keep it simple and introduce each other with names and a fun fact
 
-#### Bible Study Plan - Friday Feb 27, 2026
+
+### Start off by reading the Anchor Scripture: Hebrews 4: 14-16 KJV
+   - focus on verse 16
+
+Read Verse 16 again in TPT, AMPC, MSG translations
+
+**Hebrews 4:14-16 KJV (King James Version)**
+
+14 Seeing then that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast our profession.
+15 For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.
+16 Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.
 
 
+**TPT (The Passion Translation)**
 
-[Home](./)  |  [Scriptures](./scriptures)  |  [Agenda](./agenda)
+14 So then, we must cling in faith to all we know to be true. For we have a magnificent King-Priest, Jesus Christ, the Son of God, who rose into the heavenly realm for us, and now sympathizes with us in our frailty. 
+15 He understands humanity, for as a man, our magnificent King-Priest was tempted in every way just as we are, and conquered sin. 
+16 So now we draw near freely and boldly to where grace is enthroned, to receive mercy’s kiss and discover the grace we urgently need to strengthen us in our time of weakness. 
+
+
+**AMPC (Amplified Bible, Classic Edition)**
+14 Inasmuch then as we have a great High Priest Who has [already] ascended and passed through the heavens, Jesus the Son of God, let us hold fast our confession [of faith in Him].
+
+15 For we do not have a High Priest Who is unable to understand and sympathize and have a shared feeling with our weaknesses and infirmities and liability to the assaults of temptation, but One Who has been tempted in every respect as we are, yet without sinning.
+
+>16 Let us then fearlessly and confidently and boldly draw near to the throne of grace (the throne of God’s unmerited favor to us sinners), that we may receive mercy [for our failures] and find grace to help in good time for every need [appropriate help and well-timed help, coming just when we need it].
 
 
 ---
-### What is the Throne of Grace? 
----
-The Throne of Grace is God's mercy seat.
-
-Hebrews 4: 11-16 (KJV, TPT, AMPC)
-Come Boldly to the Throne of Grace
-
----
-### **Question:** Why does God ask us to come boldly? 
+### **Discussion Question:** What do you think is the Throne of Grace? 
 ---
 
-What does he say about obtaining mercy? 
+ - _(Let the participants give their answers. Don't force anyone to respond, just ask and see who responds.)_
 
-What does he say about obtaining grace?
 
-When you become a child of God, by accepting Jesus as your Savior and LORD, you can come to his throne. He wants you to function as a King in his realm. (Rev 1: 6)
+The Throne of Grace is God's mercy seat. This is the Throne Room of God, where he rules the world from, in truth and grace. 
 
-You are sons and daughters, Heirs of God, and Joint Heirs with Christ (Romans 8:14-17)
-
->You are not a beggar begging God to have mercy on you. Mercy has been made available. You are a child of God coming to collect what God has freely made available for you, as a result of the death and resurrection of the Lord Jesus Christ.
-
-It was made available when Jesus died on the cross (Colossians 1: 19, 2: 8-11; Philippians 2:11)
 
 ---
-### Question: How do we access this throne of Grace? 
+### **Discussion Question:** Why does God ask us to come boldly to His Throne of Grace? 
+---
+_(Again, ask and get their thoughts, then connect it to this)_
+
+When you become a child of God, by accepting Jesus as your Savior and LORD, you can come to him ANYTIME.
+Once you become a child of God, He gives you the privilege and access to pray and talk to God. 
+God is now your Father, and you can call on him anytime. You have access to the Throne of Grace as a result of the sacrifice of the Lord Jesus, on the cross.
+
+**Romans 8: 16–17 (KJV)**
+
+16 The Spirit itself beareth witness with our spirit, that we are the children of God:
+17 And if children, then heirs; heirs of God, and joint-heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
+
+**Romans 8: 16–17 (TPT)**
+16 For the Holy Spirit makes God’s fatherhood real to us as he whispers into our innermost being, “You are God’s beloved child!”
+17 And since we are his true children, we qualify to share all his treasures, for indeed, we are heirs of God himself. And since we are joined to Christ, we also inherit all that he is and all that he has.
+
+---
+### **Discussion Question:** What do you think He means when he says "Obtain Mercy", and "find Grace to help in time of need"? 
+
+_(Again, ask and get their thoughts, then connect it to this)_
+
+- Come to Him and ask for what you want. Receive forgiveness for wrongdoing. Receive abilities for what you need. Receive guidance for your life, for major decisions. 
+
+---
+### **Discussion Question:** How do we then access this throne of Grace? 
 ---
 
 1. **Through prayer.** 
-   Once you set your mind to talk to the Lord, and start communning with him, he is listening to you. Think of your smart phone. You say "Hey Siri" and all of a sudden the phone is ready to listen. How much more the King of Kings, the maker of the Universe? He is always there, always ready to talk with you. He engages with you as if you were the only person in the world that existed. He loves you that much.
+   First understand, God loves you and engages with you as if you were the only person in the world that existed. He loves you that much.
+   Once you set your mind to talk to the Lord, and start communning with him, he is listening to you. 
+   
+   Think of your smart phone. You say "Hey Siri" and the phone is ready to listen. 
+   
+   How much more the King of Kings, the maker of the Universe, your creator? He is always there, always ready to talk with you. 
 
 
 2. **Through Words.** 
-   When you pray, use words. The Lord Jesus was a master of words. His prayers were said out loud and recorded so we could read them today (John 17, The actual Lord's Prayer). So when you pray, use words, and speak out Loud - don't pray in your mind. 
+   Words are the bridge between the Spiritual realm and the Physical realm. When you pray, use words. The Lord Jesus was a master of words. His prayers were said out loud and recorded so we could read them today (John 17, The actual Lord's Prayer). So when you pray, use words, and speak out  - don't pray in your mind. 
    
-  > Words are the bridge between the Spiritual realm and the Physical realm. Everywhere there was a move of God in the scriptures, you would always find the element of Words. Learn how to use words rightly, especially as a King/Queen in the Court of God.
+   Side Note: Everywhere there was a move of God in the scriptures, you would always find the element of Words. Learn how to use words rightly, especially as a King/Queen in the Court of God.
 
 
 3. **Through Acceptance.** 
-   Once God has given the verdict, don't go back to try to change it unless you want it changed. What does that mean? If God says you are forgiven, then you are! If He says you are righteous, then accept it! 
    
-   Most of the time, some people take the attitude of *"I wanna get myself right and ready before I go to God."* But here's the thing: **You can never make yourself clean enough for God, by yourself.** None of your works would qualify. Only the sacrifice of Jesus Christ fulfilled the requirement for the atonement for sin for all mankind - past, present and future. You don't have to TRY to get yourself to be GOOD for God. Instead come to him, and let him clean you up! 
+   If God says you are forgiven, then you are forgiven! If He says you are righteous, then accept it! Accept what God has said about you. 
+
+   **2 Cor 5: 21 (TPT - The Passion Translation)**
+   For God made the only one who did not know sin to become sin for us, so that we might become the righteousness of God through our union with him.
+
+   ---
+### IMPORTANT:
    
-   When you come to him, and accept him in your life, he declares you RIGHTEOUS - by giving you the righteousness of Jesus. (2 Cor 5:17). Accept it. Then you become a son/daughter of God. 
+Most of the time, some people take the attitude of *"I wanna get myself right and ready before I go to God."* 
+
+> _(Use the analogy of a parent seeing their child all dirty and bloodied up. Would you beat them up for making a mistake or would you clean them up first?)_
+
+Here's the thing: **You can never make yourself clean enough for God, by yourself.** None of your works would qualify. 
+Only the sacrifice of Jesus Christ fulfilled the requirement for the atonement for sin for all mankind - past, present and future. You don't have to TRY to get yourself to be GOOD for God. 
+
+The Word of God is a Cleanser. Let his Word clean you up. 
    
-   Let his Word clean you up - John 15: 3 || 2 Timothy 3: 16
+**John 15:3 KJV (King James Version)** (This is Jesus talking)
 
-
-> *Don't fall into the trap of trying to make yourself righteous/good BEFORE coming to God.* Its a trap designed to keep people in bondage, don't fall for the scam. Run to God, with all the dirt. Let him clean you up. And don't stay there - Live for Jesus! 
-
+3 Now Ye are clean through the word which I have spoken unto you.
 
 
 ---
-### Conclusion
+### Conclusion:
+
+*Don't fall into the trap of trying to make yourself righteous/good BEFORE coming to God.* 
+Its a trap designed to keep people in bondage, don't fall for the scam. 
+
+Run to God, with all the dirt. Let him clean you up. And don't stay there - Live for Jesus! 
+
+
 ---
 
-Understand that your body IS the Temple of God. 
-
-What does that mean?  
-
-> In a Temple, worship is offered. How do you offer worship to God today?
-
-You offer worship to God today with: 
-
-a. **Your words** - singing praise and talking about God's greatness. (Ephesians 5: 18-21 || Psalms 150:1)
-b. **Your life and how you live it** (Hebrews 12: 1-3)
-
-c. **The fruits of your labor** (Malachi 3: 8-10 || Proverbs 4: 8-10 || Philippians 4: 14-18)
-
-d. **Telling others about The Lord Jesus Christ** (Matthew 28: 18-20 || Mark 16: 15-18)
-
-
-> In Conclusion - Come to the Lord for everything. Find grace to help for your life, your job, your thoughts, your habits, your family/significant other, your future plans, for everything. Obtain mercy. And Live for Jesus. Let your body and your lifestyle reflect the Temple of God that you are. 
-
+[Home](./)    |     [Agenda](./agenda)
 ---
+
 
 #### Created by: John Nweke 
-#### For: The Victory Collective
+#### For: The Victory Collective 
 
 
